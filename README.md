@@ -1,16 +1,16 @@
-### Hi there 👋
+### Olá bem vindo ao meu perfil🌸🌻🌈
 
-<!--
-**vicmoreira34/vicmoreira34** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![image](https://github.com/vicmoreira34/vicmoreira34/assets/142936533/0858424c-421a-4002-ae44-cf72e43f043f)
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Meu nome é Maria Vitória🦄
+
+Tenho 15 ano
+
+Aluna do colégio Idália Rocha
+
+# BTS number one fan💜💜💜
+![image](https://github.com/vicmoreira34/vicmoreira34/assets/142936533/ec909e2d-78c8-4677-91f4-9bea25248e48)
+
+
+
